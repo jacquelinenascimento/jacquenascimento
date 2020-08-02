@@ -6,4 +6,4 @@ In my free time I like to watch movies (🎞️) and series (📺), to read book
 
 Would you like to find me?
 
-[![Linkedin Badge](https://img.shields.io/badge/-LinkedIn-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/jacquelinenascimento)](https://www.linkedin.com/in/jacquelinenascimento)
+[![Linkedin Badge](https://img.shields.io/badge/-LinkedIn-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/jacqueline-nascimento-b5294054/)](https://www.linkedin.com/in/jacqueline-nascimento-b5294054/)
