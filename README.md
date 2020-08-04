@@ -1,6 +1,6 @@
 ### Hi there! 😁
 
-My name is Jacqueline Nascimento from Alagoas, Brazil. I'm studying JavaScript and I'm loving it! 
+My name is Jacqueline Nascimento from Alagoas, Brazil. I'm studying JavaScript and I'm loving it (:heart_eyes:)! 
 
 In my free time I like to watch movies (🎞️) and series (📺), to read books (📚), to listen to music (🎵) and .
 
